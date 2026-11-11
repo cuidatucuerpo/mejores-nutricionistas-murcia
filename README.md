@@ -67,12 +67,15 @@ El boca a boca y las redes sociales han popularizado creencias que limitan nuest
 
 ## Preguntas Frecuentes (FAQ)
 **¿Cuánto dura un proceso de asesoramiento nutricional?**
+
 Depende completamente de tu punto de partida y tus objetivos. No se trata de una carrera de velocidad. El objetivo es que, con el tiempo, adquieras la autonomía suficiente para gestionar tu propia alimentación sin depender de un menú pautado.
 
 **¿Se adaptan los menús si como fuera de casa frecuentemente?**
-Absolutamente. Los profesionales destacados en nuestro ranking, especialmente aquellos que trabajan con coaching nutricional, adaptan sus estrategias a tu ritmo de vida. Te proporcionarán opciones rápidas, ideas de tupper o pautas para elegir las mejores opciones en los restaurantes de Murcia.
+
+Absolutamente. Los profesionales destacados en nuestro ranking, especialmente aquellos que trabajan con coaching nutricional, adaptan sus estrategias a tu ritmo de vida. Te proporcionarán opciones rápidas, ideas de *tupper* o pautas para elegir las mejores opciones en los restaurantes de Murcia.
 
 **¿Qué ocurre en la primera sesión de contacto?**
+
 La primera sesión es, ante todo, una conversación tranquila. El experto recopilará información sobre tu estilo de vida, tus gustos alimentarios y tu rutina diaria. A partir de esa charla distendida, se empezarán a fijar pequeñas metas a corto y largo plazo.
 
 ## Conclusión
